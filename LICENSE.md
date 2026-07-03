@@ -1,4 +1,4 @@
-#  
+#  Experience enter brainrot heads like never before with advanced enter brainrot heads Script, the #1 Script. Includes undetectable and aimbot for
 
 
 
